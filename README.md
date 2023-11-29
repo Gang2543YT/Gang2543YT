@@ -6,5 +6,4 @@
 - 💞️ I’m looking to collaborate on ...
 -   Anything
 - 📫 How to reach me ...
-
-You don't
+- You don't
